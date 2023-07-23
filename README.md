@@ -11,4 +11,4 @@
 
 Приходи расслабиться с пользой для здоровья!
 
-![ ](https://disk.yandex.ru/client/disk/%D0%97%D0%B0%D0%B3%D1%80%D1%83%D0%B7%D0%BA%D0%B8?idApp=client&dialog=slider&idDialog=%2Fdisk%2F%D0%97%D0%B0%D0%B3%D1%80%D1%83%D0%B7%D0%BA%D0%B8%2FIMG_20230403_162802-01.jpeg)
+![ ](https://lifebc.ru/wp-content/uploads/2022/10/zaglushka2-2.jpeg)
